@@ -1,1 +1,1 @@
-# :wave: We're SuperToaster
+# :wave: We are SuperToaster!
